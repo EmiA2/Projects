@@ -17,7 +17,7 @@
 
 ## Objective
 
-To determine the financial viability and operating profitability of starting a Yamatcha outlet in Chennai before pursuing a sub-franchise from AK Hospitality.
+To evaluate whether opening a Yamatcha outlet in Chennai would be a profitable business opportunity for Restro & Club Pvt. Ltd before committing to a sub-franchise agreement with AK Hospitality.
 
 ## File Included
 
